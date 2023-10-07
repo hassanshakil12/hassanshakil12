@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Muhammad Hassan
-- 👀 I’m interested in Python development
-- 🌱 I’m currently learning BS-Software Engineering
-- 💞️ I’m looking to collaborate on Python projects
+- 👀 I’m interested in everything
+- 🌱 I’m currently an Undergraduate
+- 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me hassanshakil12@gmail.com
 
 <!---
