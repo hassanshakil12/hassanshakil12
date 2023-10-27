@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Muhammad Al Hassan, I’m interested in everything.
+- Hi, I’m Muhammad Al Hassan, I’m interested in everything.
 - 01) I’m an Incopmrehensible guy, No one knows what's in my mind because it's beyond good and evil.
 - 02) I’m looking to collaborate(destroy) your projects.
 - 03) Read Line 01 before reaching to me "hassanshakil12@gmail.com"
